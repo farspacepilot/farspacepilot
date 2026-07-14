@@ -1,0 +1,1 @@
+yea i am a caleb yumeshipper how did you know bro. jokes aside we are very selective sharing with him (mostly nonsharing but don't mind close oomfs liking him). i don't harrass doubles nor condone such actions i genuinely couldn't care less if you yume with him just don't talk to me about it unless we're close, okay?
